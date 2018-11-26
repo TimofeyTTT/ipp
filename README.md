@@ -19,3 +19,26 @@ FACEBOOK
 TWITTER
 
 PINTREST
+
+
+
+
+TIMOTHY ORTEGA
+
+PORTFOLIO
+
+
+Ortega(Samurai Tim) is a young, talented, 
+
+athletic, individual blessed in many aspects.
+
+My hobbies include Martial arts, interior 
+
+desing, music production and research. 
+
+I am gifted in basketball and observation.
+
+
+
+
+CONTACTS
